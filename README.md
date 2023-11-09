@@ -9,7 +9,7 @@ before u interact:
 
 pls interact ily:
 
-- metalheads, black metal fans im rlly picky abt bc some of yall are just........ mayhem isnt that good stop idolizing nazis like varg and euronymous
+- metalheads, i love black metal but the fans im rlly picky abt bc some of yall........ mayhem isnt that good stop idolizing nazis like varg and euronymous
 - horror fans, brahms simps dni thats essentially an 8 year old in a grown mans body why do u want that
 - autistic + adhd + other neurodivergent ppl. chances are u are bc i mean come on its ponytown
 
