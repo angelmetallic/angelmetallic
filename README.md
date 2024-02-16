@@ -10,6 +10,6 @@ before u interact:
 
 pls interact ily:
 
-- any metalheads, i love black metal but the fans im rlly picky abt bc some of yall........ stop idolizing nazis like varg and euronymous. and stop being so weird about pelle wtf ive seen so many dead body pelle skins on ponytown yall are freaks. and no elitists i hate you
+- any metalheads, i love black metal but the fans im rlly picky abt bc some of yall........ stop idolizing nazis like varg and euronymous. and stop being so weird about pelle wtf ive seen so many dead body pelle skins on ponytown yall are freaks. and no elitists/gatekeepers i hate you thanks
 - horror fans BUT brahms simps dni thats essentially an 8 year old in a grown mans body why do u. stop that.
 - autistic + adhd + other neurodivergent ppl. chances are u are bc i mean come on its ponytown
