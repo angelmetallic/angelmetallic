@@ -2,7 +2,7 @@ this is just for ponytown or whatever, idk shit how do u code these
 
 before u interact:
 
-- i make f slur references (not often) and identify with it, if this bothers u i strongly advise u dont talk to me
+- i make f slur references (not often) and identify with it closely as i am a queer gay man, if this bothers u i strongly advise u dont talk to me
 - i only make kys jokes to people i am close with that i know are ok with this, otherwise it's kms jokes
 - i dont really hide people often, if u hide me it means you're probably a weird ass freak
 - dont flirt with me unless i know u well and know it's jokes, i will find you and put anthrax in ur mailbox /j
